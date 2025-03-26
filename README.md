@@ -1,0 +1,2 @@
+# etakbhayo
+Sumarize Spaces
